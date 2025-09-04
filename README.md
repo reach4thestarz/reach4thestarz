@@ -22,6 +22,10 @@
 <h1>ɪ ᴀᴍ ᴛᴀᴋᴇɴ! ɪ ʜᴀᴠᴇ ᴀɴ ᴀᴍᴀᴢɪɴɢ ɢɪʀʟꜰʀɪᴇɴᴅ, ᴡʜᴏ ɪ ʟᴏᴠᴇ ᴠᴇʀʏ ᴍᴜᴄʜ!</h1>
 <h3>ꜱᴏ ɴᴏ ꜰʟɪʀᴛɪɴɢ ᴘʟᴇᴀꜱᴇ- ᴇᴠᴇɴ ᴀꜱ ᴀ ᴊᴏᴋᴇ</h3>
 
+<img src="https://media.tenor.com/i6lHUAqonAIAAAAM/metamy-metamy-cats.gif" alt="Metamy Metal Sonic GIF - Metamy Metal Sonic Amy Rose - Discover &amp; Share GIFs"/><img src="https://media.tenor.com/0IG695UTq78AAAAM/metamy-metal-sonic.gif" alt="Metamy Sonic GIF - Metamy Sonic Amy - Discover &amp; Share GIFs"/><img src="https://media.tenor.com/JojqomAfV9wAAAAM/metamy-metal-sonic.gif" alt="GIF de Sonic Vs Metal Sonic Movie | Tenor"/>
+
+
+
 ʏᴏᴜ ᴄᴀɴ ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏ ɪꜰ ʏᴏᴜ ᴡᴀɴᴛ, ɪ ᴍᴀᴅᴇ ᴛʜɪꜱ ʀᴇᴀᴅ.ᴍᴇ ᴍᴀɪɴʟʏ ꜰᴏʀ ᴘᴏɴʏᴛᴏᴡɴ
 
 <img width="99" height="56" alt="sonic_stamp_by_yukidarkfan_d1sraoz-fullview" src="https://github.com/user-attachments/assets/327b3bed-7a4f-4c49-bc9f-7c0b80de3c76" /><img width="99" height="56" alt="metal_sonic_stamp_by_rothstein_kaiser_d4xr36f-fullview" src="https://github.com/user-attachments/assets/ab593b39-2876-476b-b510-91c0742ce48c" />![sonic_for_president_stamp_by_the_elven_gamer_d1a4eiz-fullview](https://github.com/user-attachments/assets/b04e7664-c70a-40ba-a134-c90edc59b0b1)![d337wnb-95684687-a6d9-4ed6-a62a-dd66045c8b8b](https://github.com/user-attachments/assets/9dc69207-b0d5-4312-bdc5-c6ecd4408e7f)![d3ip9ei-0ae58f59-a1cf-4c48-a6ab-54731ac596ad](https://github.com/user-attachments/assets/0903f365-6b3d-4de1-8470-f963e6def624)![dfkc3ej-454d9f74-f5f5-4b0a-b285-172f55214358](https://github.com/user-attachments/assets/b248188e-06ab-43e2-ada3-f6934b58c331)![sonic_the_hedgehog_stamp_by_karmarsi_kedamoki_d2pch7c-fullview](https://github.com/user-attachments/assets/ac089690-51c6-4f7a-babf-e4d747f6c4cd)![d6iskos-7d36e02c-b937-45bc-b110-256608c689e2](https://github.com/user-attachments/assets/2ad0d2e6-3f55-412c-ae76-08e8b6b6162d)

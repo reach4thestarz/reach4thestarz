@@ -1,9 +1,9 @@
-<img width="736" height="414" alt="1000002744" src="https://github.com/user-attachments/assets/63577a9b-2432-467b-847b-e52daec7bece" />
+![1000003682](https://github.com/user-attachments/assets/4f42241d-126e-48ee-99fb-5d90b9172eb6)
 
 
 
 
-for more info, check out my strawpage!!
+
 
 
 

@@ -1,6 +1,7 @@
-![1000003740](https://github.com/user-attachments/assets/7ceb444f-79f6-4354-85d4-b08ac8b4b4a0)
+![1000003773](https://github.com/user-attachments/assets/0608debc-bd0b-4ed3-b01c-6bef613749ba)
 
-i fucking love them sm
+
+
 
 
 

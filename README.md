@@ -1,16 +1,4 @@
-![1000004125](https://github.com/user-attachments/assets/55008d0a-978c-448c-b9ec-7238a5e3d925)
-
-
-
-
-
-
-
-
-
-
-
-<h1>✦✦✦•┈┈•✦✦✦</h1>
+<img width="1035" height="235" alt="1000004131" src="https://github.com/user-attachments/assets/a311978c-2186-454e-974f-03bc4f177d38" />
 
 
 <p align="center">
@@ -18,3 +6,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aqphzqd2hdicvm4swd7xy5tz6u&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=7398ff&bar_color_cover=false">
   </a>
 </p>
+
+<img width="1035" height="235" alt="1000004138" src="https://github.com/user-attachments/assets/52eb73ae-2215-44bc-808e-67286a683db3" />

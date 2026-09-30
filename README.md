@@ -15,7 +15,11 @@ $\color{#AC203C}{\textit{ ✧ I am TAKEN
 $\color{#AC203C}{\textit{ ✧ I am an ADULT! MDNI!!
 }}$
 
-$\color{#AC203C}{\textit{ ✧ For Ponytown Players, I do not give a FUCK if you copy or take inspo - it's just pixels
+$\color{#AC203C}{\textit{ ✧ For Ponytown Players
+}}$
+$\color{#AC203C}{\textit{I do not give a FUCK if you copy
+}}$
+$\color{#AC203C}{\textit{or take inspo - it's just pixels
 }}$
 
 $\color{#AC203C}{\textit{ ✧ I don't care about drama or ship wars or fandom fights - as long as you're not a creep/proshipper/pedo/homo-transphobe/racist then it doesn't fucking concern me

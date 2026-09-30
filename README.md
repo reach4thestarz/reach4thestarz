@@ -12,7 +12,7 @@ $\color{#AC203C}{\textit{ ✧ I go by They/It pronouns
 $\color{#AC203C}{\textit{ ✧ I am TAKEN
 }}$
 
-$\color{#AC203C}{\textit{ ✧ I am ADULT! MDNI!!
+$\color{#AC203C}{\textit{ ✧ I am an ADULT! MDNI!!
 }}$
 
 $\color{#AC203C}{\textit{ ✧ For Ponytown Players, I do not give a FUCK if you copy or take inspo - it's just pixels

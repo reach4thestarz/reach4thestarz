@@ -26,7 +26,9 @@ $\color{#AC203C}{\textit{ ✧ I don't care about drama or ship wars
 }}$
 $\color{#AC203C}{\textit{or fandom fights - as long as you're not a
 }}$
-$\color{#AC203C}{\textit{creep/proshipper/pedo/homo-transphobe/racist
+$\color{#AC203C}{\textit{creep, proshipper, pedo,
+}}$
+$\color{#AC203C}{\textit{homo-transphobe/racist
 }}$
 $\color{#AC203C}{\textit{then it doesn't concern me
 }}$

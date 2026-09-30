@@ -3,7 +3,7 @@
 # 𝓣𝓸 𝓮𝓽𝓮𝓻𝓷𝓪𝓵 𝓫𝓵𝓲𝓼𝓼
 ***
 
-$\color{#ADD8E6}{\textit{text goes here}}$
+$\color{#AC203C}{\textit{text goes here}}$
 
 <img width="1414" height="613" alt="1000006252" src="https://github.com/user-attachments/assets/8ade64b6-15ea-47fd-892c-ecf8017167eb" />
 

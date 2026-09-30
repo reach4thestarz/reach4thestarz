@@ -3,7 +3,8 @@
 # 𝓣𝓸 𝓮𝓽𝓮𝓻𝓷𝓪𝓵 𝓫𝓵𝓲𝓼𝓼
 ***
 
-$\color{#AC203C}{\textit{text goes here}}$
+$\color{#AC203C}{\textit{𝘾𝙖𝙡𝙡 𝙢𝙚 𝙈𝙚𝙥𝙝𝙞𝙚 𝙤𝙧 𝙎𝙝𝙖𝙙𝙞𝙚
+}}$
 
 <img width="1414" height="613" alt="1000006252" src="https://github.com/user-attachments/assets/8ade64b6-15ea-47fd-892c-ecf8017167eb" />
 

@@ -22,7 +22,13 @@ $\color{#AC203C}{\textit{I do not give a FUCK if you copy
 $\color{#AC203C}{\textit{or take inspo - it's just pixels
 }}$
 
-$\color{#AC203C}{\textit{ ✧ I don't care about drama or ship wars or fandom fights - as long as you're not a creep/proshipper/pedo/homo-transphobe/racist then it doesn't fucking concern me
+$\color{#AC203C}{\textit{ ✧ I don't care about drama or ship wars
+}}$
+$\color{#AC203C}{\textit{or fandom fights - as long as you're not a
+}}$
+$\color{#AC203C}{\textit{creep/proshipper/pedo/homo-transphobe/racist
+}}$
+$\color{#AC203C}{\textit{then it doesn't concern me
 }}$
 
 $\color{#AC203C}{\textit{ ✧ SDR2 2x2 !! save me super Danganronpa goodbye despair 2x2!!

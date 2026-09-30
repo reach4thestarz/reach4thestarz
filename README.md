@@ -1,21 +1,9 @@
-<img width="2048" height="82" alt="1000004732" src="https://github.com/user-attachments/assets/e2adfef8-f2b7-4773-acf4-c6e339cb7947" />
+![1000006251](https://github.com/user-attachments/assets/a08db25f-2571-4853-a530-3542b77b6c3a)
 
+# 𝓣𝓸 𝓮𝓽𝓮𝓻𝓷𝓪𝓵 𝓫𝓵𝓲𝓼𝓼
+***
 
+$\color{#ADD8E6}{\textit{text goes here}}$
 
-
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aqphzqd2hdicvm4swd7xy5tz6u&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=1d54e0&bar_color_cover=false">
-  </a>
-</p>
-
-<img width="2048" height="82" alt="1000004732" src="https://github.com/user-attachments/assets/178b2a9d-50fa-4ecd-a2c2-c9a9b0a934ee" />
-
-
-<img width="500" height="333" alt="1000004735" src="https://github.com/user-attachments/assets/bac00ce6-ba6c-4e99-980c-01d7c2582d95" />
-
-
-
-
+<img width="1414" height="613" alt="1000006252" src="https://github.com/user-attachments/assets/8ade64b6-15ea-47fd-892c-ecf8017167eb" />
 

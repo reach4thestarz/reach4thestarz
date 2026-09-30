@@ -30,7 +30,7 @@ $\color{#AC203C}{\textit{creep, proshipper, pedo,
 }}$
 $\color{#AC203C}{\textit{homo-transphobe, racist
 }}$
-$\color{#AC203C}{\textit{then it doesn't concern me
+$\color{#AC203C}{\textit{ - then it doesn't concern me
 }}$
 
 $\color{#AC203C}{\textit{ ✧ SDR2 2x2 !! save me super Danganronpa goodbye despair 2x2!!
